@@ -1,2 +1,0 @@
-# Gouranga
-Gouranga sardar
